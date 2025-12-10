@@ -12,6 +12,11 @@ https://www.youtube.com/watch?v=rF_oIaDvtJ4
 https://www.youtube.com/watch?v=0DQJkzLqCLk 
 
 
+Assets:
+https://kaylousberg.itch.io/kaykit-dungeon-remastered
+https://quaternius.com/packs/stylizednaturemegakit.html 
+https://kaylousberg.itch.io/halloween-bits
+
 Audio:
 https://freesound.org/people/MATUSTRM/sounds/835721/
 https://freesound.org/people/Samuelbcf7/sounds/578733/ 
